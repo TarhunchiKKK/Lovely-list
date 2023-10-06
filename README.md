@@ -1,3 +1,3 @@
-# [lovely-list](t1f9YbobJ57U8Y3RC6vHnvBmy9mfqizxEi3)
+# [lovely-list](https://tarhunchikkk.github.io/lovely-list/)
 
 ![](https://github.com/TarhunchiKKK/lovely-list/blob/main/result.jpg)
